@@ -14,4 +14,4 @@ MeritKing Sadece Burada !
  
 # <p>MeritKing , her geçen gün büyüyen kullanıcı kitlesi ile sektördeki yerini sağlamlaştırıyor. 🌟 Eğlenceli ve kazanç dolu bir bahis deneyimi için MeritKing’in güncel giriş adresini takip edin ve avantajlardan faydalanın!</p>
 
-<img src="https://r.resimlink.com/qIWkpPUBru_.jpg" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
+<img src="https://r.resimlink.com/PIT4zuZtVJw.jpg" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
